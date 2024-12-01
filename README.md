@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @tmshbay  
+- 👀 I’m interested in artificial intelligence, robotics, and web development.  
+- 🌱 I’m currently learning advanced AI models, neural networks, and robotics systems.  
+- 💞️ I’m looking to collaborate on innovative projects in AI, automation, and social impact technology.  
+- 📫 How to reach me: [ibrsagat2009@gmail.com](mailto:ibrsagat2009@gmail.com)  
+- 😄 Pronouns: He/Him 
